@@ -1,6 +1,6 @@
 # Crypto for marketplace ,staking, payment gateway
 
-<div align="center"><img src="https://mms-soilminerals.com/wp-content/uploads/2022/11/logo.png)" /><br />
+<div align="center"><img src="[(https://mhappy-stablecointhai.com/wp-content/uploads/2023/06/ms-icon-310x310-1.png))" /><br />
 </div>
 <div align="center">
   <h1><br />
