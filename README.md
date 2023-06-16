@@ -1,4 +1,4 @@
-# MHAPPY : The Token Of The Stable Coin Project
+# MHAPPY Coin : The Token Of The Stable Coin Project
 
 <div align="center"><img src="https://mhappy-stablecointhai.com/wp-content/uploads/2023/06/ms-icon-310x310-1.png)" /><br />
 </div>
