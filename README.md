@@ -1,4 +1,4 @@
-# Crypto for marketplace ,staking, payment gateway
+# MHAPPY : The Token Of The Investment Project
 
 <div align="center"><img src="https://mhappy-stablecointhai.com/wp-content/uploads/2023/06/ms-icon-310x310-1.png)" /><br />
 </div>
