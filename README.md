@@ -19,10 +19,10 @@ User MHAPPY Coin on MGP Shoppingmall. All transactions on the MGP Mall platform 
 
 📄 Whitepaper : https://docs.mhappy-stablecointhai.com
 
-👨🏿‍🤝‍👨🏿Twitter : https://twitter.com/mmsplatform
+💎 Twitter : https://twitter.com/mmsplatform
 
-👨🏿‍🤝‍👨🏿Telegram Group : https://t.me/+seMX1nx2Bgk4ZTFl
+🚀 Telegram Group : https://t.me/+seMX1nx2Bgk4ZTFl
 
-👨🏿‍🤝‍👨🏿Youtube Chanel : https://www.youtube.com/watch?v=pGBg5Eq07g8
+🔶 Youtube Chanel : https://www.youtube.com/watch?v=pGBg5Eq07g8
 
-👨🏿‍🤝‍👨🏿Smart Contract : https://bscscan.com/token/0xdb5ee2a3d48f17a81bdcf513d6988ed430bbe7ab)
+🌐 Smart Contract : https://bscscan.com/token/0xdb5ee2a3d48f17a81bdcf513d6988ed430bbe7ab
